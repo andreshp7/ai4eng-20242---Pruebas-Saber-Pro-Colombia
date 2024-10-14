@@ -7,3 +7,5 @@ Cedula: 1152218793
 
 Programa academico: Ingeniería eléctrica 
 
+Video entrega 2: https://www.youtube.com/watch?v=hJed7Kzl5TE
+
