@@ -10,4 +10,4 @@ Nombre: Andrés Herrera Piedrahita. c.c: 1152218793  Ingeniería eléctrica
 
 Video entrega 2: https://www.youtube.com/watch?v=hJed7Kzl5TE
 
-Video entrega 3: https://youtu.be/tnwnfAosDk0
+Video entrega 3: https://youtu.be/4PGXSY99ofE
